@@ -1,1 +1,1 @@
-# India Cornell's Notes
+# India's Notes
